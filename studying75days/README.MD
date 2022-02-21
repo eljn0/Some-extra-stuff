@@ -1,1 +1,1 @@
-- Day 1 </br> Task: Improve Writing
+- Day 1 </br> Task: Improve Math </br> Studied 2hours no calculator
