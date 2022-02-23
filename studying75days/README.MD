@@ -1,2 +1,3 @@
 - Day 1 </br> - Task: Improve Math </br> - Studied 2 hours no calculator </br> - 20/14
 - Day 2 </br> - Task: Reading H/w </br>
+- Day 3 </br> - Tast: Reading again</br> - missed :(
