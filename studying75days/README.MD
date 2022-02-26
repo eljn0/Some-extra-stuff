@@ -3,3 +3,4 @@
 - Day 3 </br> - Task: Reading again</br> - missed :(
 - Day 4 </br> - Task: Math siuuu:)</br> - Studied 1 hour no calculator quiz</br>- Finished bcs of tired
 - Day 5 </br> - Task: Math Homework</br> - Studied 3 hours at School </br> 20/19
+- Day 6 </br> - Trial Exam Day </br> - I think I've done something like 900
