@@ -6,6 +6,6 @@
 - Day 6 </br> - Trial Exam Day </br> - I think I've done something like 900
 - Day 7 </br> - Mental Day </br> Need some rest to mental reset.( few books read )
 - Day 8 </br> - Task: Writing Trial Day</br> 44/21 ( I don't know why but my writing is bad:( )
-#<p align="center">How can I get 1400 easily?</p>
+# <p align="center">How can I get 1400 easily?</p>
 - My plan is just get full math no calculator.</br>
 and full writing. The others just 300-300 enough for getting 1400:)
