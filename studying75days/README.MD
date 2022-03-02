@@ -9,3 +9,4 @@
 # <p align="center">How can I get 1400 easily?</p>
 - My plan is just get full math no calculator.</br>
 and full writing. The others just 300-300 enough for getting 1400:)
+- Day 9 </br> - Task: Finishing homework </br> writing 
