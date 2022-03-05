@@ -13,4 +13,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 10 </br> - result of the trial: 910 (500 math 410 verbal)</br> I have to more practise verbal.
 - Day 11 </br> - Task : no calculator math 18/20. </br> It's very good for me.</br> 12 hours studying session.</br> - Hour 1 Writing Test 44/24 </br> - Hour 2 Writing Test 2 44/24</br> Feeling bad :(
 - Day 12 </br>- Task : 12 Hours studying session</br> - Hour 2 Writing Test 3 44/26</br>
-- Hour 3 Started writing grammar book :)
+- Hour 3 Started writing grammar book :)</br>
+- Hour 4 Add,Delete, Revise Test</br    >
