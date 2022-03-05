@@ -18,4 +18,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Hour 3 Started writing grammar book :)</br>
 - Hour 4 Add,Delete, Revise Test</br>
 - Hour 5 Redone Practise 1 44/30</br>
-- Hour 6 Erica Meltzer practise 44/30
+- Hour 6 Erica Meltzer practise 44/30</br
+- Hour 7 Startup School
