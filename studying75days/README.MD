@@ -15,4 +15,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 12 </br>- Task : 12 Hours studying session</br> - Hour 2 Writing Test 3 44/26</br>
 - Hour 3 Started writing grammar book :)</br>
 - Hour 4 Add,Delete, Revise Test</br>
-- Hour 5 Redone Practise 1 44/30
+- Hour 5 Redone Practise 1 44/30</br>
+- Hour 6 Erica Meltzer practise 44/30
