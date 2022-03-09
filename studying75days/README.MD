@@ -23,3 +23,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 13 </br> - Task: all tasks have done yesterday</br> so Mental Reset Day
 - Day 14 </br> - Task: writing practise at class 44/27</br>
 - Day 15 </br> - Task: writing practise homework
+- Day 16 </br> - Task: writing math h/w
