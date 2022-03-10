@@ -9,4 +9,4 @@
 
 - 21 Jan 2022 - Started project
 - Models (https://inmoov.fr/inmoov-stl-parts-viewer/?bodyparts=Back)
--  20% Done
+-  40% Done
