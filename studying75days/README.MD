@@ -26,3 +26,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 16 </br> - Task: writing math h/w</br>
 - Day 17 </br> - Task: prep for tomorrow </br> 3.1 = all correct, 
 - Day 18 </br> - Task: reading lesson tomorrow
+- Day 19 </br> - Task: 12 hours session prep
