@@ -28,4 +28,6 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 18 </br> - Task: reading lesson tomorrow
 - Day 19 </br> - Task: 12 hours session prep
 - Day 20 </br> - Task: writing homework
-- Day 21 </br> -Task: writing (44/31)
+- Day 21 </br> - Task: writing (44/31)
+- Day 22 </br> - Task: Improve reading ( With webs )
+- Day 23 </br> - Task: Math no calculator 
