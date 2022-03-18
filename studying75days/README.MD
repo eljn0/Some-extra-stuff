@@ -31,3 +31,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 21 </br> - Task: writing (44/31)
 - Day 22 </br> - Task: Improve reading ( With webs )
 - Day 23 </br> - Task: Math no calculator 
+- Day 24 </br> - Task: writing 22/18
+- Day 25 </br> - Task: reading
