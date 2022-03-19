@@ -32,4 +32,9 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 22 </br> - Task: Improve reading ( With webs )
 - Day 23 </br> - Task: Math no calculator 
 - Day 24 </br> - Task: writing 22/18
+- Day 25 </br> - Task: writing 44/39
+- Day 26 </br> - Task: 5 hours study plan
+- hour 1 writing 22/16
+- hour 2 writing 22/16 total(22/32)
+
 - Day 25 </br> - Task: reading
