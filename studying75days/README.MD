@@ -39,5 +39,6 @@ and full writing. The others just 300-300 enough for getting 1400:)
 </br>- hour 3 full writing (44/33)
 - Day 27 </br> - Task: finishing 5 hours study plan 
 </br>- hour 4 full writing (44/34)
+- Day 28 </br> - Task writing: 1hour(11/8)
 
 
