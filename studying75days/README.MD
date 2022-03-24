@@ -42,4 +42,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 28 </br> - Task: writing 1hour(11/8)
 - Day 29 </br> - Task: mental reset day
 - Day 30 </br> - Task: hour 1 writing 44/27 </br> hour 2 writing (44/29)
+- Day 31 </br> - Task: math homework
 
