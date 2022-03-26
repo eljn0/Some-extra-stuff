@@ -44,4 +44,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 30 </br> - Task: hour 1 writing 44/27 </br> hour 2 writing (44/29)
 - Day 31 </br> - Task: math homework
 - Day 32 </br> - Task: math no calculator (20/13) (12/8)
+- Day 33 </br> - Task: reading (20/13)
 
