@@ -46,4 +46,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 32 </br> - Task: math no calculator (20/13) (12/8)
 - Day 33 </br> - Task: reading (20/13)
 - Day 34</br> -Task: writing day
+- Day 35 </br> - Task: reading(33/23) writing (22/18)
 
