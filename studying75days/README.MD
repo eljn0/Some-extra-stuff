@@ -54,3 +54,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 40 </br> - Task: both math (58/53)
 - Day 41 </br> Trial Day ( I think its 1000)
 - Day 42 </br> Trial Result 1000 (460 verbal) (540 math) Sat no calculator 20/15
+- Day 43 </br> Reading
+- Day 44 </br> Math 
