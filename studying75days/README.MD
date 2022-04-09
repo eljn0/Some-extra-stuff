@@ -57,3 +57,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 43 </br> Reading
 - Day 44 </br> Math, Writing (44/32)
 - Day 45 </br> Math homework done
+- Day 46 </br> Math Quiz (16/14)
+- Day 47 </br> Trial Prep
