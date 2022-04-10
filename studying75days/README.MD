@@ -59,3 +59,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 45 </br> Math homework done
 - Day 46 </br> Math Quiz (16/14)
 - Day 47 </br> Trial Prep
+- Day 48 </br> TRIAL DAY ( math done. verbal gg)
