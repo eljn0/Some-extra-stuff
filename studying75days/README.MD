@@ -60,3 +60,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 46 </br> Math Quiz (16/14)
 - Day 47 </br> Trial Prep
 - Day 48 </br> TRIAL DAY ( math done. verbal gg)
+- Day 49 </br> Trial Result 1370 ( wtf how can i get this ) ( 690 math 680 verbal )
