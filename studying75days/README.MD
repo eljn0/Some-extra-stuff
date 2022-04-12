@@ -54,10 +54,11 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 40 </br> - Task: both math (58/53)
 - Day 41 </br> Trial Day ( I think its 1000)
 - Day 42 </br> Trial Result 1000 (460 verbal) (540 math) Sat no calculator 20/15
-- Day 43 </br> Reading
-- Day 44 </br> Math, Writing (44/32)
-- Day 45 </br> Math homework done
-- Day 46 </br> Math Quiz (16/14)
-- Day 47 </br> Trial Prep
+- Day 43 </br> - Task: Reading
+- Day 44 </br> - Task: Math, Writing (44/32)
+- Day 45 </br> - Task: Math homework done
+- Day 46 </br> - Task: Math Quiz (16/14)
+- Day 47 </br> - Task: Trial Prep
 - Day 48 </br> TRIAL DAY ( math done. verbal gg)
 - Day 49 </br> Trial Result 1370 ( wtf how can i get this ) ( 690 math 680 verbal )
+- Day 50 </br> - Task: math h/w
