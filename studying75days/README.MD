@@ -62,3 +62,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 48 </br> TRIAL DAY ( math done. verbal gg)
 - Day 49 </br> Trial Result 1370 ( wtf how can i get this ) ( 690 math 680 verbal )
 - Day 50 </br> - Task: math h/w
+- Day 51 </br> - Task: math (new topics)
