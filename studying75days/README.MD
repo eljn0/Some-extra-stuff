@@ -65,3 +65,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 51 </br> - Task: math (new topics)
 - Day 52 </br> - Task: math homework
 - Day 53 </br> - Task: math homework no mistake
+- Day 54 </br> - Task: writing improve
