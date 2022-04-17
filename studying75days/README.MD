@@ -66,3 +66,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 52 </br> - Task: math homework
 - Day 53 </br> - Task: math homework no mistake
 - Day 54 </br> - Task: writing improve
+- Day 55 </br> TRIAL DAY ( not bad both ) ( 1200 1300 i think)
