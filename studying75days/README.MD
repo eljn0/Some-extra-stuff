@@ -68,3 +68,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 54 </br> - Task: writing improve
 - Day 55 </br> TRIAL DAY ( not bad both ) ( 1200 1300 i think)
 - Day 56 </br> Trial result: again 1370 (630 verbal 740 math)
+- Day 57 </br> Practising verbal
