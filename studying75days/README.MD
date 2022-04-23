@@ -71,3 +71,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 57 </br> Practising verbal
 - Day 58 </br> Mental Reset, article day
 - Day 59 </br> Reading (52/39) Writing ( 44/37 )
+- Day 60 </br> Reading h/w done
+- Day 61 </br> Writing h/w done ( prep for tomorrow's trial )
