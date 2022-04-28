@@ -77,3 +77,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 63 </br> Trial Result 1340 (310 reading, 310 writing, 720 math )
 - Day 64 </br> Mental Reset day
 - Day 65 </br> Math homework
+- Day 66 </br> Math done (20/18) no calculator
