@@ -78,3 +78,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 64 </br> Mental Reset day
 - Day 65 </br> Math homework
 - Day 66 </br> Math done (20/18) no calculator
+- Day 67 </br> Advanced math done
+- Day 68 </br> Preparing to travel turkey
