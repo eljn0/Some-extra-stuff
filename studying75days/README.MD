@@ -81,3 +81,4 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 67 </br> Advanced math done
 - Day 68 </br> Preparing to travel turkey
 - Day 69 </br> In turkey, reading prac
+- Day 70 </br> 7 hours studied (math, writing)
