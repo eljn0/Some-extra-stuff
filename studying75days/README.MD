@@ -82,3 +82,6 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 68 </br> Preparing to travel turkey
 - Day 69 </br> In turkey, reading prac
 - Day 70 </br> 7 hours studied (math, writing)
+- Day 71-75 </br>- Task: mental reset
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+75 days study session has ended. :)
