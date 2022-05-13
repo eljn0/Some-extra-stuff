@@ -1,1 +1,2 @@
 - Day 1 </br> - Task: Math improvement
+- Day 2 </br> - Task: barrons math 2.1
