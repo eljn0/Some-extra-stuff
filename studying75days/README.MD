@@ -85,3 +85,5 @@ and full writing. The others just 300-300 enough for getting 1400:)
 - Day 71-75 </br>- Task: mental reset
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------
 75 days study session has ended. :)
+ 
+The Sat result is 1130. Still not bad for 1st try.
